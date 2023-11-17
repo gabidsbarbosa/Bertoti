@@ -10,7 +10,7 @@
 
 <br>
 
-<h3>Instagram: Correspondência entre o sistema e o mundo real<h3>
+<h3>Instagram: Consistência e padrões<h3>
 
 <p>Com os ícones, as redes sociais se tornam mais intuítivas e mais fácil de navegar para os usuários.</p>
 
